@@ -1,0 +1,2 @@
+# AUA_ENGS110_2020_TIME_SCHEDULE
+This is AUA_ENGS110_2020 idvividual peoject
